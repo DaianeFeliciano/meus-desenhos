@@ -1,5 +1,5 @@
 # Meus Desenhos
 
-Desenhos realizados por Hoobie. 
+Desenhos realizados por hobby. 
 Inspirado em pessoas reais.
 :)
